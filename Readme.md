@@ -8,4 +8,4 @@ https://github.com/bhanuprakashbahoju/Team_Excellencia/assets/119474223/7de0a0d7
 
 ## Authors
 
-- Team Excellencia from Sreenidhi Institute of Science and Technology
+- Team Intellegencia from Sreenidhi Institute of Science and Technology
